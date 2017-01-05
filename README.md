@@ -40,16 +40,16 @@
 
 ###4.학식
 
-![법학관](http://thumb.photo.naver.net/exphoto02/2008/1/17/289/ebb295ed9599eab4802_glohyun0319q.jpg)<img width=“400” height=“700”>
+>![법학관](http://thumb.photo.naver.net/exphoto02/2008/1/17/289/ebb295ed9599eab4802_glohyun0319q.jpg)<img width=“400” height=“700”>
 >법식
 
-![310관](http://blogfiles1.naver.net/20160902_38/danaminho_1472786370805OMfkn_JPEG/63638_50323_106.jpg)
+>![310관](http://blogfiles1.naver.net/20160902_38/danaminho_1472786370805OMfkn_JPEG/63638_50323_106.jpg)
 >310관
 
->>카우버거
 >>![카우버거](http://blogfiles7.naver.net/20140121_97/baramyess_1390230417497tiKdR_JPEG/P130909_121244.jpg)  
+>>카우버거
 
-![기숙사](http://blogfiles11.naver.net/20160102_98/damodesty_1451716771681c6jWn_JPEG/%B1%E2%BC%F7%BB%E7%C0%FC%B0%E6.jpg)
+>![기숙사](http://blogfiles11.naver.net/20160102_98/damodesty_1451716771681c6jWn_JPEG/%B1%E2%BC%F7%BB%E7%C0%FC%B0%E6.jpg)
 >기식
 
 >>308
